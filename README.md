@@ -1,5 +1,5 @@
 -  Hi, I’m @thesanammm
--  I’m interested in learning 
+-  I’m interested in learning a lot of things in differnet ways which makes me feel good for my future
 -  I’m currently learning web development and Android App Development
 -  My hobbies is to playing badmintion,reading novels,and travelling
 
